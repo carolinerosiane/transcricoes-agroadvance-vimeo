@@ -1,1 +1,0 @@
-# transcricoes-agroadvance-vimeo
